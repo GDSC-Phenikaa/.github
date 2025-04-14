@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About us:
 Chúng tôi đơn giản là GDSC Phenikaa :3<br>We bare GDSC Phenikaa :3
 
 
